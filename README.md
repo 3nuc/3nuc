@@ -1,5 +1,4 @@
-### Hi there 👋
-
+![Donald Tusk eating hotdog and drinking coffee near a Polish gas station. The photograph is an art representation of peace](https://i.imgur.com/5udB4cg.gif)
 <!--
 **3nuc/3nuc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
